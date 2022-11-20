@@ -1,6 +1,7 @@
 # tips4iptv
 <b>7 Tips to Choose The Best IPTV Service</b>
 </b>
+</B>
 It’s not a common practice to claim that traditional television is not in style nowadays, but statistics suggest that more and more users are embracing IPTV to stream their preferred programs. The internet is slowly becoming more dominant every year.
 
 For those who aren’t familiar with the term IPTV It is possible that you’re also using it however you are not aware of its use in this way, which is completely fine. Contrary to conventional programming, which is transmitted by transmitters and picked-up through aerials IPTV is a term used to describe television programs that are delivered via an internet connection.
